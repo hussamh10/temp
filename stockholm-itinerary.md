@@ -41,7 +41,7 @@ Mid-October: about 6–10 °C, sunset around 17:25, and showers are likely. Brin
 | 11:45 | On the way, look at **metro station art**: T-Centralen (blue cave) and Kungsträdgården (ruins and colours) | Each is one stop and a few minutes. |
 | 12:15 | **Gamla stan back streets:** Stortorget, Mårten Trotzigs gränd, Prästgatan, Österlånggatan | Skip Västerlånggatan; it's the souvenir strip. |
 | 13:00 | **Lunch:** **Hermitage** (veg buffet, $), **Tradition** (husmanskost, $$) or **Under Kastanjen** ($$) | |
-| 14:00 | **Moderna Museet** on Skeppsholmen (the collection is free) *or* the **Medieval Museum** under Norrbro bridge (free, and overlooked by most visitors) | |
+| 14:00 | **Moderna Museet** on Skeppsholmen (about 170 SEK; closed Mondays, open until 18:00 on weekends) *or* the **Medieval Museum** under Norrbro bridge (free, and overlooked by most visitors) | |
 | 15:15 | Last fika at **Chokladkoppen** (Stortorget) | |
 | 15:45 | Head to T-Centralen | The Arlanda Express takes about 18 min. |
 
