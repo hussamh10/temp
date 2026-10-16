@@ -93,7 +93,9 @@ Mid-October: about 6–10 °C, sunset around 17:25, and showers are likely. Brin
 | Place | Area | Laptop? | Notes |
 |---|---|---|---|
 | **Café Pascal** | Vasastan | Yes, mornings | Top coffee. Weekends get busy. |
-| **Kulturhuset** (library floors) | Sergels torg | Yes, the best free option | Free wifi, plugs, lots of seats. |
+| **Kulturhuset** (library floors) | Sergels torg | Yes, the best free option | Free wifi, plugs, lots of seats. It's part of the city library system, so **eduroam** probably works. |
+| **Stadsbiblioteket** (Asplund rotunda, Sveavägen 73) | Vasastan | Yes | Iconic round library with eduroam reported. Check that the main building is open (it has had long renovations) and its weekend hours. |
+| **Hornstull library** | Södermalm | Yes | Listed with **eduroam**. It's next to Långholmen, so you can pair it with the island walk. |
 | **Badabing** | Södermalm (Tjärhovsgatan) | Yes | Co-working café: nearly everyone is working, so it's calm. You pay only for what you order. |
 | **Muggen** | Södermalm (Götgatan) | Yes | Good wifi and cakes. Few plugs, and it fills up by lunch. |
 | **Snickarbacken 7** | Norrmalm | Yes | Hidden courtyard café and gallery in an old stable, with nice atmosphere. |
