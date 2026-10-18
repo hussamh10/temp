@@ -32,18 +32,19 @@ Mid-October: about 6–10 °C, sunset around 17:25, and showers are likely. Brin
 
 ---
 
-## Sunday: laptop time, flea market, Gamla stan, out by 16:00
+## Sunday: slow and relaxed, out by 16:00
 
 | Time | What | Notes |
 |---|---|---|
-| 09:00 | **Laptop and breakfast at Café Pascal** (Norrtullsgatan 4, Vasastan) | Specialty coffee and pastries. About 1.5–2 h of work. Backups are listed below. |
-| 11:00 | **Hötorget Sunday flea market (loppis)** | On Sundays the fruit-market square turns into a locals' flea market: ceramics, vinyl, glass, old Swedish design. Free. |
-| 11:45 | On the way, look at **metro station art**: T-Centralen (blue cave) and Kungsträdgården (ruins and colours) | Each is one stop and a few minutes. |
-| 12:15 | **Gamla stan back streets:** Stortorget, Mårten Trotzigs gränd, Prästgatan, Österlånggatan | Skip Västerlånggatan; it's the souvenir strip. |
-| 13:00 | **Lunch:** **Hermitage** (veg buffet, $), **Tradition** (husmanskost, $$) or **Under Kastanjen** ($$) | |
-| 14:00 | **Moderna Museet** on Skeppsholmen (about 170 SEK; closed Mondays, open until 18:00 on weekends) *or* the **Medieval Museum** under Norrbro bridge (free, and overlooked by most visitors) | |
-| 15:15 | Last fika at **Chokladkoppen** (Stortorget) | |
-| 15:45 | Head to T-Centralen | The Arlanda Express takes about 18 min. |
+| 09:30 | **Slow breakfast at Ritorno** (Odengatan 80, Vasastan) | 1950s café full of regulars. Get an *ostsmörgås* (cheese sandwich) and a cardamom bun, and take your time. |
+| 10:30 | Stroll down Sveavägen to Hötorget (~20 min) | Pass the round Stadsbiblioteket (Asplund library) on the way. |
+| 11:00 | **Hötorget Sunday flea market (loppis)** | Browse Swedish glass, ceramics and vinyl without rushing. |
+| 11:45 | **Centralbadet** (Drottninggatan 88, 5 min away), about 2 h | A 1904 art-nouveau bathhouse with a pool, saunas and a garden courtyard. Bring swimwear or rent it there. Check Sunday hours and price. |
+| 14:00 | **Lunch in Gamla stan:** Under Kastanjen (cosy, Swedish) or Hermitage (cheap veg buffet) | About 15 min on foot, or two metro stops. |
+| 15:00 | Short walk to **Evert Taubes terrass** on Riddarholmen, then **last fika at Chokladkoppen** (Stortorget) | Sit by the water, then have hot chocolate on the square. |
+| 15:45 | Walk to T-Centralen (~10 min) | The Arlanda Express takes about 18 min. |
+
+**If the weather is nice:** skip the bathhouse. Take tram 7 to Djurgården and walk along **Djurgårdsbrunnskanalen**, a canal path through autumn trees. Have lunch at the end at Djurgårdsbrunn, or check whether Rosendals Trädgård is still open. Take the tram back by 15:15.
 
 ---
 
